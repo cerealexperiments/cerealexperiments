@@ -1,5 +1,5 @@
 # heyyy
-i'm software developer or something idk
+it's over for me. i'm just coping with code n gaming n shit...
 
 ## typemaxxing
 still improving (maybe peaked unfortunately)
