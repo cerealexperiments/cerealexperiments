@@ -1,12 +1,10 @@
-# heyyy
-it's over for me. i'm just coping with code n gaming n shit...
+# hey
+coping retard
 
 ## typemaxxing
 still improving (maybe peaked unfortunately)
 ![monkeytype](https://github.com/cerealexperiments/cerealexperiments/assets/94980092/56f1d2eb-f27e-469b-a69b-de6924cc2a7c)
 
-
-![typeracer](https://github.com/cerealexperiments/cerealexperiments/assets/94980092/da27a565-5822-4178-80b1-06fbc94f4be9)
 
 ## favorite songs
 1. murder case — killriddle, gorejit
