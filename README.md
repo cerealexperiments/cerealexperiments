@@ -1,5 +1,5 @@
-# hey
-copemaxxing rn
+# ...)
+coping
 
 ## typemaxxing
 still improving (maybe peaked unfortunately)
